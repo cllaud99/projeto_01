@@ -10,4 +10,11 @@
 - Configurei no GitHub
 
 
+## Neste pequeno tutorial segui as etapas do vídeo
+
+[Link para o canal](https://www.youtube.com/watch?v=-M4pMd2yQOM&t=1390s&ab_channel=LucianoGalv%C3%A3oFilho)
+
+Elaborado pelo Luciano GF
+
+
 
